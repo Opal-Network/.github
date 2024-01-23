@@ -1,1 +1,1 @@
-# Grinch Grinch, go away, come again anothe day
+# Grinch Grinch, go away, come again another day
